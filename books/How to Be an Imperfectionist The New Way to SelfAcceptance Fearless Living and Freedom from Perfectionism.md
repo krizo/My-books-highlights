@@ -1,0 +1,46 @@
+# How to Be an Imperfectionist The New Way to SelfAcceptance Fearless Living and Freedom from Perfectionism
+- Perfectionism makes you stay home, not take chances, and procrastinate on projects; it makes you think your life is worse than it is; it keeps you from being yourself; it stresses you out; it tells you that good is bad;
+- Perfectionism makes you stay home, not take chances, and procrastinate on projects; it makes you think your life is worse than it is; it keeps you from being yourself; it stresses you out; it tells you that good is bad; and it ignores the natural way in which things work.
+- Perfectionism makes you stay home, not take chances, and procrastinate on projects; it makes you think your life is worse than it is; it keeps you from being yourself; it stresses you out; it tells you that good is bad; and it ignores the natural way in which things work.
+- “To be yourself in a world that is constantly trying to make you something else is the greatest accomplishment.”  ~ Ralph Waldo Emerson
+- parental-related perfectionism is derivative of unrealistic expectations and the need for approval; the
+- parental-related perfectionism is derivative of unrealistic expectations and the need for approval;
+- “If you look for perfection, you'll never be content.”
+- “If you look for perfection, you'll never be content.”  ~ Leo Tolstoy
+- It’s a counterintuitive truth: when you wish things were better, it’s tempting to pretend and insist that they already are. Those
+- It’s a counterintuitive truth: when you wish things were better, it’s tempting to pretend and insist that they already are.
+- we desire greatly.  We cling
+- Striving for excellence, on its own, is wholly good. High expectations are the problem.
+- In life, you’re consistently building up one of two things—your level of comfort or your level of growth.
+- At its core, imperfectionism is pursuing and doing good things in life without so much as hoping for (let alone expecting) perfection.
+- The primary benefits of becoming an imperfectionist are reduced stress and greater results by taking positive action in more situations.
+- If you want anything great to happen in your life, you’ve got to start moving forward now, even if you’ve got a flat tire, a rusty frame, and a busted headlight. It’s only by moving forward that you see new horizons, open up new possibilities, and have more opportunities to grow and enjoy life.
+- Keep this italicized phrase in mind: effort over perfection. It’s
+- Keep this italicized phrase in mind: effort over perfection.
+- Care less about results. Care more about putting in the work. Care less about problems. Care more about making progress despite them. Or if you must fix something, focus on the solution. Care less about what other people think. Care more about who you want to be and what you want to do. Care less about doing it right. Care more about doing it at all. Care less about failure. Care more about success. Care less about timing. Care more about the task.
+- “When one's expectations are reduced to zero, one really appreciates everything one does have.”
+- Generally speaking, when your expectations are met or exceeded, you’ll experience a positive emotion, and when they are not met, you’ll experience a negative emotion.
+- If something is important to you, it should be your goal to make it casual—not special—because habits are casual.
+- What would a statistician tell a wanna-be-published writer to do? Submit your manuscript everywhere, and be aggressive about it. Sure, if it’s terrible, you won’t get anywhere (unless there are vampires in it). But if it’s decent or even masterful, the more you send it out, the better your chances of getting an offer. The fastest-selling books in history are the last four Harry Potter books, but the first of the series was rejected 12 times before it was published. As the success of the Harry Potter books have proven, author J. K. Rowling is not the one who failed those 12 times.
+- The key to building powerful confidence is to decide specifically what you can be confident about right now, and build from there.
+- Confident people don’t ask for permission.
+- Unlike shooting a free throw, where the game is at its slowest, battling for a rebound doesn’t give a player time to worry about making mistakes. In the full-court game, they have no choice but to rely on their instinctual, subconscious-driven reactions. Additionally, failing to get an offensive rebound is not seen as a mistake so much as a missed opportunity.
+- are defined, such as “perfectionist writer,” it’s still too vague.
+- Procrastination is not caused by laziness but by a combination of fear and overcomplicated objectives, which come from a perfectionistic mindset.
+- those who simplify and make success easier than failure are those who get into “success cycles.”
+- Instead of expecting perfect results, the imperfectionist expects perfect progress and consistency.
+- The unfortunate alternative is passive living, where you “float” along and let life take you where you’d never choose to go on your own.
+- Perfectionism either leads to or is caused by fear, depending on the person. If you’re scared, your fragile state of mind will want things to go perfectly (or not at all). Or if you are a perfectionist requiring the absolute best results, the pressure can scare you. Perfectionism and fear are happily married.
+- not even a perfect decision-making machine can make perfect decisions with imperfect data. In
+- not even a perfect decision-making machine
+- not even a perfect decision-making machine can make perfect decisions with imperfect data.
+- If you let any doubt stop you from acting, you will avoid living a meaningful life.
+- If you let any doubt stop you from acting, you will avoid living a meaningful life. But if you pursue the things you want as best you can, you’ll figure things out. Trial and error is the time-tested way to improve something.  If someone struggles with doubts about their actions, what kind of skill can they develop to directly help?
+- If you let any doubt stop you from acting, you will avoid living a meaningful life. But if you pursue the things you want as best you can, you’ll figure things out. Trial and error is the time-tested way to improve something.
+- people who have the quick-decision habit are seen as fearless and confident.
+- Say you’re considering starting a garden. The non-urgency of the task can make you feel like you have plenty of time to start it later. In addition, there are many initial steps and tips about gardening you’d like to know before you begin. The combination of these two—too little information and too much time—can easily keep your garden a dream instead of something in your backyard.
+- Say you’re considering starting a garden. The non-urgency of the task can make you feel like you have plenty of time to start it later. In addition, there are many initial steps and tips about gardening you’d like to know before you begin. The combination of these two—too little information and too much time—can easily keep your garden a dream instead of something in your backyard.
+- ruminating about a past event or acting like a perfectionist. Part of imperfectionism is being kind to and patient with yourself.
+- perfectionist. Part of imperfectionism is being kind to and patient with yourself.
+- Part of imperfectionism is being kind to and patient with yourself.
+- Don’t see success as being a clean, perfect milestone like losing 100 pounds. Mentally smash your big goals with a sledgehammer. When they shatter into hundreds of pieces, pick up the smallest piece and consider that the previously big goal wouldn’t be complete without it. See success as modular and let progress be your new definition of success.

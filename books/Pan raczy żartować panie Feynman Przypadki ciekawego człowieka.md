@@ -1,0 +1,4 @@
+# Pan raczy żartować panie Feynman Przypadki ciekawego człowieka
+- zacząłem mówić, po prostu zapomniałem, kto siedzi na sali. Tłumaczyłem nową teorię
+- Powiedziałem więc: – Nie wiem, jak uzyskać żółty kolor bez żółtej farby. – Trzeba wziąć czerwoną i białą farbę. – Jesteś pewien, że nie wyjdzie różowy? – Nie, wyjdzie żółty. – Uwierzyłem mu, że wyjdzie żółty, ponieważ był zawodowym malarzem, a ja zawsze podziwiałem takich ludzi, ale zastanawiałem się, jak to możliwe. Wpadłem na pomysł.
+- Z opowieści tej płynął morał, który wtedy był dla mnie czymś zupełnie nowym: nareszcie zrozumiałem, przynajmniej częściowo, po co jest naprawdę sztuka. Sztuka sprawia ludziom osobistą przyjemność. Można wykonać coś, co komuś innemu tak bardzo się podoba, że jest nieszczęśliwy, jeżeli tego nie dostanie! W nauce rzecz przedstawia się jakby bardziej ogólnie: nie znasz poszczególnych ludzi, którzy bezpośrednio docenili twoje dzieło.

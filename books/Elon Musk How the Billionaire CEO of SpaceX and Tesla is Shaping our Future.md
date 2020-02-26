@@ -1,0 +1,18 @@
+# Elon Musk How the Billionaire CEO of SpaceX and Tesla is Shaping our Future
+- snatching the car away from Ralph Lauren, who had also inquired
+- the small office on University Avenue had turned into the frenzied
+- star, but he was not alone among this group of young, nimble
+- star, but he was not alone among this group of young, nimble
+- What Musk would not tolerate were excuses or the lack of a clear plan of attack. Hollman was one of many engineers who arrived at this
+- What Musk would not tolerate
+- Musk was always looking for brainy engineers who had not just done well at school but had done something exceptional with their talents. When
+- “The guy comes in, and Elon asks him why they’re meeting,” Spikes said. “He said, ‘To develop a relationship.’ Elon replied, ‘Okay. Nice to meet you,’ which basically meant, ‘Get the fuck out of my office.’
+- tolerance for that kind of stuff.” Musk could be equally brisk
+- tolerance for that kind of stuff.” Musk could be equally brisk
+- seized about $15 million that came through when Dell acquired
+- Boulder,
+- gasp. A white latticed support structure
+- angst with one of his standard responses. He wrote back, “Ok.”
+- prevailed in the dispute with an arbitrator ordering Tesla to
+- deceit? Perfect. And yet, the press has never really dug into
+- deceit? Perfect. And yet, the press has never really dug into

@@ -1,0 +1,6 @@
+# Królowie przeklęci Tom 2
+- płaszczem, z głową schowaną pod czapą z nausznikami,
+- płaszczem, z głową schowaną pod czapą z nausznikami, który trzykrotnie cicho zagwizdał. Uciekinierzy
+- płaszczem, z głową schowaną pod czapą z nausznikami, który trzykrotnie cicho zagwizdał. Uciekinierzy
+- Po skończonej biesiadzie główni dowódcy oddalili się, aby spisać akt rozejmu, który zawierał liczne zapisy. Prawdę mówiąc, Kent był gotów zgodzić się na wszystko z wyłączeniem kilku zdań, które kontestowały prawowitość władzy króla Anglii, a także sprzeciwił się wpisaniu panów Basseta i Montpezata na listę zakładników. Panowie ci bowiem uwięzili i powiesili urzędnika króla Francji, toteż ich los nie był pewny. Jednakże Walezjusz upierał się przy oddaniu
+- Po skończonej biesiadzie główni dowódcy oddalili się, aby spisać akt rozejmu, który zawierał liczne zapisy. Prawdę mówiąc, Kent był gotów zgodzić się na wszystko z wyłączeniem kilku zdań, które kontestowały prawowitość władzy króla Anglii, a także sprzeciwił się wpisaniu panów Basseta i Montpezata na listę zakładników. Panowie ci bowiem uwięzili i powiesili urzędnika króla Francji, toteż ich los nie był pewny. Jednakże Walezjusz upierał się przy oddaniu

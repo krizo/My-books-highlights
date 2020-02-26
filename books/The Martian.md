@@ -1,0 +1,26 @@
+# The Martian
+- rovers and had a good drive around, but after days of wandering,
+- wandering, I think it’s time to give up. The storm probably blew the dish
+- My asshole is doing as much to keep me alive as my brain.
+- you’d throw out a pop-tent, get in, and wait for rescue. The airlock
+- turn it into oxygen in its own time. Then, I’ll release hydrazine,
+- By my reckoning, I’m about 100 kilometers from Pathfinder. Technically it’s “Carl Sagan Memorial Station.” But with all due respect to Carl, I can call it whatever the hell I want. I’m the King of Mars.
+- With no magnetic field, Mars has no defense against harsh solar radiation. If I were exposed
+- With no magnetic field, Mars has no defense against harsh solar radiation. If I were exposed to it, I’d get so much cancer, the cancer would have cancer.
+- I don’t want to come off as arrogant here, but I’m the best botanist on the planet.
+- strain humidity out of the air (you exhale almost as much water
+- told NASA what I did. Our (paraphrased) conversation was: Me: “I took it apart, found the problem, and fixed it.” NASA: “Dick.”
+- meters from the Hab now. I can’t get any closer, ’cause the debris
+- intact). I just got power back online. The farm is dead. I’ve recovered
+- intact). I just got power back online. The farm is dead. I’ve recovered
+- I tested the brackets by hitting them with rocks. This kind of sophistication is what we interplanetary scientists are known for.
+- Still, from a selfish point of view, I miss my wife. Hey, are you
+- hoses disconnected. And that means the trailer junction snapped.
+- I started the day with some nothin’ tea. Nothin’ tea is easy to make. First, get some hot water, then add nothin’.
+- It’s true, you know. In space, no one can hear you scream like a little girl.
+- The cost for my survival must have been hundreds of millions of dollars. All to save one dorky botanist. Why bother? Well, okay. I know the answer to that. Part of it might be what I represent: progress, science, and the interplanetary future we’ve dreamed of for centuries. But really, they did it because every human being has a basic instinct to help each other out. It might not seem that way sometimes, but it’s true. If a hiker gets lost in the mountains, people will coordinate a search.
+- The cost for my survival must have been hundreds of millions of dollars. All to save one dorky botanist. Why bother? Well, okay. I know the answer to that. Part of it might be what I represent: progress, science, and the interplanetary future we’ve dreamed of for centuries. But really, they did it because every human being has a basic instinct to help each other out. It might not seem that way sometimes, but it’s true. If a hiker gets lost in the mountains, people will coordinate a search. If a train crashes, people will line up to give blood. If an earthquake levels a city, people all over the world will send emergency supplies. This is so fundamentally human that it’s found in every culture without exception. Yes, there are assholes who just don’t care, but they’re massively outnumbered by the people who do. And because of that, I had billions of people on my side. Pretty cool, eh? Anyway, my ribs hurt like hell, my vision is still blurry from acceleration sickness, I’m really hungry, it’ll be another 211 days before I’m back on Earth, and, apparently, I smell like a skunk took a shit on some sweat socks. This is the happiest day of my life.
+- The cost for my survival must have been hundreds of millions of dollars. All to save one dorky botanist. Why bother? Well, okay. I know the answer to that. Part of it might be what I represent: progress, science, and the interplanetary future we’ve dreamed of for centuries. But really, they did it because every human being has a basic instinct to help each other out. It might not seem that way sometimes, but it’s true. If a hiker gets lost in the mountains, people will coordinate a search.
+- The cost for my survival must have been hundreds of millions of dollars. All to save one dorky botanist. Why bother? Well, okay. I know the answer to that. Part of it might be what I represent: progress, science, and the interplanetary future we’ve dreamed of for centuries. But really, they did it because every human being has a basic instinct to help each other out. It might not seem that way sometimes, but it’s true. If a hiker gets lost in the mountains, people will coordinate a search.
+- The cost for my survival must have been hundreds of millions of dollars. All to save one dorky botanist. Why bother? Well, okay. I know the answer to that. Part of it might be what I represent: progress, science, and the interplanetary future we’ve dreamed of for centuries. But really, they did it because every human being has a basic instinct to help each other out. It might not seem that way sometimes, but it’s true.
+- If a hiker gets lost in the mountains, people will coordinate a search. If a train crashes, people will line up to give blood. If an earthquake levels a city, people all over the world will send emergency supplies. This is so fundamentally human that it’s found in every culture without exception. Yes, there are assholes who just don’t care, but they’re massively outnumbered by the people who do. And because of that, I had billions of people on my side.
